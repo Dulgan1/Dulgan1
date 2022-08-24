@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Dulgan1
+- I’m interested in -> Machine Learning, Cloud Infrastructure development, Iot, AR/VR and video games development.
+- I’m currently learning -> AI, Iot 
+- I’m looking to collaborate on -> AR/VR projects, Game development projects and Iot.
+- How to reach me -> dulgandanjuma1620@gmail.com, NGN +2348142451620
